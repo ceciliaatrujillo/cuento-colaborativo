@@ -1,1 +1,1 @@
-Hola
+Había una vez un robot llamado Raul, que podía limpiar, cocinar y resolver problemas, pero no entendía las emociones. Un día decidio que quería aprender sobre ellas, así que fue en busca de algo que le enseñara qué significa sentir.
